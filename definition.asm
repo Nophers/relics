@@ -198,3 +198,60 @@ Zeichen:
 Der Priester, die Eltern und die Paten zeichnen dem Täufling ein Kreuz auf die Stirn.
 Ist Erkennungszeichen der Christen
 
+Wasser:
+Wasser ist ein Zeichen für Leben, kann auch Verderben und Tod bringen.
+Täufling wird in Wasser getaucht, wird in Liebe Gottes getaucht. 
+Der Tod hat keine Macht mehr über ihn
+
+Chrisamöl:
+Ist eine Mischung aus Olivenöl und Balsam.
+Es ist das Zeichen für den Geist Gottes.
+Gesalbte Kind gehört zu Christus, der König, Prister und Prophet ist
+
+Taufkleid:
+Weiße Farbe bedeutet dass etwas Neues angefangen hat.
+
+Taufkerze:
+Wird an der Osterkerze, die ein Zeichen für Christus ist, entzündet.
+Durch die Taufkerze erhält das Taufkind sein Lebenslicht von Christus. Soll Licht sein für andere
+
+--------------------------------------------------------------------------------
+
+Die Firmung:
+
+Was ist die Firmung?
+Die Firmung ist die Vollendung. In der Taufe erhält der Christ den 
+Heiligen Geist. In der Firmung bekommt er die Stärkung des Heiligen Geistes.
+
+Bei der Firmung erneuert der Firmling mit eigenen Worten das Taufbekenntnis.
+
+Christus schenkt dem Jugendlichen in der Firmung die Kraft dafür. 
+Der Geist Gottest belebt ihn und macht ihn begeisterungsfähig.
+
+Geschenke:
+- Weisheit
+- Einsicht
+- Rat
+- Stärke
+- Erkenntnis
+- Frömmigkeit 
+- Gottesfurcht
+
+Handauflegung: 
+Mit diesem Zeichen zeigt der Firmspender, dass Gott den jungen Menschen begleitet, stärkt und beschützt.
+Gott traut ihm zu, für seinen Glauben einzustehen.
+
+Salbung mit Chrisamöl: Salbe
+Soll ihm zeigen, dass Gott ihn heil und schön macht.
+Der Jugendliche bekommt durch die Salbung eine Würde von Gott geschenkt.
+Einzigartig und unverwechselbar.
+
+Besieglen mit dem Kreuzzeichen:
+Es verstärkt die Zugehörigkeit zu Christus und zur Kirche
+
+Feier: 
+Der Bischof legt dem Firmling die Hände auf, salbt seine Stirn mit Chrisamöl und sagt
+"Sei besiegelt durch die Gabe Gottes, den Heiligen Geist".
+Mit einem Amen: gibt der Firmling seine Zustimmung.
+
+Ein Bischof kann auch Prister beauftragen, die Firmung zu spenden.
